@@ -9,3 +9,5 @@ yt: @gconedevyt
 basic stuff about me
 
 learning c# and python
+he/him/his/hiself literally any male pronoun out there
+autistic
