@@ -11,3 +11,7 @@ basic stuff about me
 learning c# and python
 he/him/his/hiself literally any male pronoun out there
 autistic
+unity dev,modeller,composer,artist
+
+currently working on 
+8 games/projects
